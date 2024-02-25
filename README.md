@@ -1,2 +1,3 @@
 # IMAGE-GENERATION
-![Uploading 9c52a28d-baf0-4406-bfea-11208e76db6d.png…]()
+
+![9c52a28d-baf0-4406-bfea-11208e76db6d](https://github.com/Gary123fff/IMAGE-GENERATION/assets/114977477/00a85b10-63d3-4f51-b468-6f29664da4b1)
